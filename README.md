@@ -20,5 +20,5 @@ Digital artist exploring the art of visual storytelling, with a focus on craftin
 
 ## Dream Projects
 
-I aspire to be a story designer for RPGs or adventure games. I want to create stories about friendship, sacrifice, and self-discovery. My dream role is to focus on worldbuilding and character design.
+Great father for my child
 
